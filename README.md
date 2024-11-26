@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LOKESH-anay
 - 👀 I’m interested in Data Analyst .
-- 🌱 I’m currently learning Data anylysis.
+- 🌱 I’m currently learning Data analysis.
 - 💞️ I’m looking to collaborate on best places.
 - 📫 How to reach me to contact no, to mail 
 - 😄 Pronouns: ...
